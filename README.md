@@ -6,4 +6,4 @@ Some lip files may be missing and I may have missed a few other files, but all o
 
 I also left some raw mp3 incase anybody wants to make any changes
 
-my burner might get banned for this but I'm hoping it doesn't
+my burner on nexus *might* get banned for this but I'm hoping it doesn't
